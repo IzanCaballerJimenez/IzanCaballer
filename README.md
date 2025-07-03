@@ -9,7 +9,7 @@
 ## 📫 Contact
 
 - 📧 Email: caballerjimenezizan@gmail.com  
-- 💼 LinkedIn
+- 💼 LinkedIn : [www.linkedin.com/in/izan-caballer-jiménez](www.linkedin.com/in/izan-caballer-jiménez-466a6a372)
 
 ## 🧰 Technologies & Tools
 
